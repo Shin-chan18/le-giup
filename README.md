@@ -1,2 +1,2 @@
-# link-l-ch-gi-p-l-
+# le giup
 của gx
